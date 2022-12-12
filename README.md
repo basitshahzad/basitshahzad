@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @basitshahzad
-- 👀 I’m Wordpress Developer & Designer
+- 👀 I’m Experienced and Certified Wordpress Developer & Designer
 - 🌱 I’m currently working on upwork
 - 📫 How to reach me:Contact me on Upwork https://www.upwork.com/freelancers/~0140f2519c9bfa5ca1
 
